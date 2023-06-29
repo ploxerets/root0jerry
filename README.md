@@ -1,1 +1,1 @@
-Çok basit  bir türk bayraklı index..
+Developer & Certified Ethical Hacker
