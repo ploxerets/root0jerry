@@ -1,1 +1,2 @@
-Developer & Certified Ethical Hacker
+türk bayraklı basit bir index değiştirebilirsiniziyi kullanımlar..
+
