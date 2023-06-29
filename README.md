@@ -1,2 +1,2 @@
-türk bayraklı basit bir index değiştirebilirsiniziyi kullanımlar..
+türk bayraklı basit bir index değiştirebilirsiniz iyi kullanımlar..
 
